@@ -1,2 +1,2 @@
-# psychic-tribble
+# Osted.vemjunyo
 vemm junto
