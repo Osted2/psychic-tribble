@@ -1,2 +1,2 @@
-# Osted.vemjunyo
+# Osted.vemjunto
 vemm junto
